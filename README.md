@@ -38,12 +38,12 @@
 
 # Un tourisme solidaire et responsable
 
->Notre guide touristique invite à intégrer la pratique du tourisme solidaire dans le cadre de nos week-ends et nos séjours de vacances, afin de découvrir un autre type de >voyage.
+>Notre guide touristique invite à intégrer la pratique du tourisme solidaire dans le cadre de nos week-ends et nos séjours de vacances, afin de découvrir un autre type de voyage.
 >
->Parce que la solidarité est essentielle pour notre bien vivre en société, avec le Guide du Flâneur, chacun des touristes utilisateurs pourra agir de manière solidaire avec les >acteurs locaux et les populations locales des territoires visités.
+>Parce que la solidarité est essentielle pour notre bien vivre en société, avec le Guide du Flâneur, chacun des touristes utilisateurs pourra agir de manière solidaire avec les acteurs locaux et les populations locales des territoires visités.
 >
->Au même titre que notre façon de consommer, voyager autrement va nous permettre de soutenir ce que nous souhaitons voir se pérenniser et pourquoi pas, participer au >développement de ce qui est bon pour nous tous : quand vous êtes hébergé chez l'habitant, vous participez au développement économique de la région.
+>Au même titre que notre façon de consommer, voyager autrement va nous permettre de soutenir ce que nous souhaitons voir se pérenniser et pourquoi pas, participer au développement de ce qui est bon pour nous tous : quand vous êtes hébergé chez l'habitant, vous participez au développement économique de la région.
 >
->Pratiquer un tourisme solidaire, c'est rentrer en contact pas à pas avec notre environnement rural ou citadin, c'est susciter des rencontres avec les acteurs locaux habitant >les lieux traversés et participer au développement des territoires car tel est l’esprit de ce guide offrant un tourisme innovant et respectueux.
+>Pratiquer un tourisme solidaire, c'est rentrer en contact pas à pas avec notre environnement rural ou citadin, c'est susciter des rencontres avec les acteurs locaux habitant les lieux traversés et participer au développement des territoires car tel est l’esprit de ce guide offrant un tourisme innovant et respectueux.
 >
->C'est une nouvelle façon de pratiquer un tourisme solidaire, en France, de convivialité et plus près de la réalité des territoires qui va faire de chaque touriste un soutien >économique et social auprès des activités locales et des gens qu'elles font vivre.
+>C'est une nouvelle façon de pratiquer un tourisme solidaire, en France, de convivialité et plus près de la réalité des territoires qui va faire de chaque touriste un soutien économique et social auprès des activités locales et des gens qu'elles font vivre.
