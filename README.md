@@ -21,14 +21,14 @@
 >
 >Permettre de jouer un rôle de soutien économique et solidaire en participant au maintien et à la transmission des activités et des savoir-faire.
 >
->Offrir, par le moyen de la randonnée pédestre, la possibilité de s’imprégner de l’âme d’un territoire par une approche lente et intrusive et, important, se débarasser de >l'étiquette de touriste et se mettre à niveau avec les gens du pays.
+>Offrir, par le moyen de la randonnée pédestre, la possibilité de s’imprégner de l’âme d’un territoire par une approche lente et intrusive et, important, se débarasser de l'étiquette de touriste et se mettre à niveau avec les gens du pays.
 
 ###### Pour les acteurs locaux
->Donner au niveau national de la visibilité et de l’existence en les intégrant dans le Guide du Flâneur aux petits  producteurs, aux artisans, aux  petits commerçants, aux >associations, aux lieux d'hébergement, aux lieux culturels  ainsi qu'aux initiatives locales qui font l'économie réelle et la spécificité de chacun des territoires abordés.
+>Donner au niveau national de la visibilité et de l’existence en les intégrant dans le Guide du Flâneur aux petits  producteurs, aux artisans, aux  petits commerçants, aux associations, aux lieux d'hébergement, aux lieux culturels  ainsi qu'aux initiatives locales qui font l'économie réelle et la spécificité de chacun des territoires abordés.
 >
 >Rassembler ces acteurs dans un groupe cohérent, autour d’une charte, définie par Le Guide du Flâneur (voir en annexe).
 >
->Permettre à toutes ces diverses entreprises de développer leur clientèle, d'accroître leur chiffre d’affaire en consolidant leur activité et conforter dans leur choix de vie les >femmes et les hommes qui sont à l'origine de toutes ces initiatives.
+>Permettre à toutes ces diverses entreprises de développer leur clientèle, d'accroître leur chiffre d’affaire en consolidant leur activité et conforter dans leur choix de vie les femmes et les hommes qui sont à l'origine de toutes ces initiatives.
 
 ## Copyright
 >Les photographies, les textes ainsi que les reportages audios et vidéos sont la propriété exclusive du Guide du Flâneur.fr.
